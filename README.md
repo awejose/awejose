@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on with a crypto projects 
 - 📫 How to reach me , you can reach me on twitter dayus_web3
 - 😄 Pronouns: he
-- ⚡ Fun fact: don't play around rather be player
+- ⚡ Fun fact: don't play around rather be a player
 
 <!---
 awejose/awejose is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
